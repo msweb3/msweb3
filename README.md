@@ -4,7 +4,7 @@
 - 💞️ I’m not looking to collaborate
 - 📫 How to reach me, through Telegram.
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: Move your ass...
+- ⚡ Fun fact: There is nothing funny...
 
 <!---
 msweb3/msweb3 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
